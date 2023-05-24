@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently working on **GISTFA research and development**
 
-- 📫 How to reach me **asvelasquez@☺ucundinamarca.edu.co**
+- 📫 How to reach me **asvelasquez@ucundinamarca.edu.co**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
